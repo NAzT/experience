@@ -35,3 +35,5 @@ Speaking Experience
 
 	Link: https://goo.gl/xEVF1Q
 
+8. Guest Speaker at Faculty of Material Engineering, Mae Fah Luang University.
+	Link: https://www.facebook.com/photo.php?fbid=10159304188245347&set=t.896050346&type=3&theater
