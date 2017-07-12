@@ -1,5 +1,3 @@
-# experience
-
 Speaking Experience
 =========================
 
