@@ -1,7 +1,7 @@
 Speaking Experience
 =========================
 
-1. Creative Thailand Symposium
+1. [Creative Thailand Symposium](https://www.zipeventapp.com/e/creative-thailand-symposium)
 
 	Date: 21 OCTOBER 2016
 	
